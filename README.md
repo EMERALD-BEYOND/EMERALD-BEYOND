@@ -1,20 +1,21 @@
 <p align="center">
 <h4 align="center"
 
-this is the counter thing i have if u want it ill link the code
+wip
 
  <p align="center"> 
  spacerock shippers BLOCK ME NOW
 <p align="center">
 <h4 align="center"
 
-image
+image wip
 
 <h4 align="center"
 
-image
+image wip
 
 <h4 align="center"
   
 <strong>${\color{#54c79e}✦}$
+idk
 <strong>${\color{#54c79e}✦}$
